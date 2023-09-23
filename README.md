@@ -13,7 +13,7 @@
 
 - 📝 I regularly talk about football on [https://twitter.com/JanavDua7](https://twitter.com/JanavDua7)
 
-- 💬 Ask me about **Figma, UI/UX, Design**
+- 💬 Ask me about **Figma, UI/UX, Graphic Design, Frontend Development etc.**
 
 - 📫 How to reach me **janavdua7@gmail.com**
 
