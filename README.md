@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Figma, UI/UX, Graphic Design, Frontend Development etc.**
 
-- 📫 How to reach me **janavdua7@gmail.com** or just hit me up on my **Socials :)**
+- 📫 Reach me @ **janavdua7@gmail.com** or just hit me up on my **Socials :)**
 
 - ⚡ Fun fact **A mixture of Harvey Specter⚖️, Barney Stinson🤵🏻 and Ronaldo⚽ at the same time 😉**
 
